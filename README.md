@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am Ankur Tiwari<br>Curious to know everything<br>Good observer<br>
+I am Ankur Tiwari<br>Curious to know everything<br>
 
 
 ## 🌐 Socials:
